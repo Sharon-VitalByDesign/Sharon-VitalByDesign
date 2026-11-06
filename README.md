@@ -1,4 +1,4 @@
-# Sharon Matthews
+# Dr. Sharon Matthews
 
 I'm an educator, learning designer, AI consultant, and founder of [Vital by Design](https://vitalbydesign.io).
 
